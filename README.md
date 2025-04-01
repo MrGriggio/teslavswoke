@@ -1,2 +1,0 @@
-# teslavswoke
-Tesla vs Woke
